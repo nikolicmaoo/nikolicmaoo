@@ -1,4 +1,4 @@
-📫 You can reach me by email: magdalenanikolic00@icloud.com
+📫 You can reach me by email: magdalenanikolic2000@gmail.com
 
 <!---
 nikolicmaoo/nikolicmaoo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
